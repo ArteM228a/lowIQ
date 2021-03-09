@@ -1,0 +1,2 @@
+# lowIQ
+low iq фигня
